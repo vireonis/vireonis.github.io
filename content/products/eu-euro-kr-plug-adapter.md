@@ -15,3 +15,4 @@ Price Now: **EUR 0.97**
 A compact plug adapter designed for travel and everyday use when you need to connect a US-style plug to compatible EU/KR-style power sockets. Useful for travel, hotels, and other locations with matching socket types.
 
 [Click & Buy on AliExpress](https://s.click.aliexpress.com/e/_c44y70Hj)
+
